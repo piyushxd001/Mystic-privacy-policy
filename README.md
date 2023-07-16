@@ -34,7 +34,7 @@
 #### You can reach us by the following methods:
 - Join our [Support Server](https://dsc.gg/mystic-hq) on discord
 - Contact me on discord [Mystic bots](https://dsc.gg/mystic-hq)
-- Server invite invalid or channels locked ? You can contact me via my email address: samarplayz1337@gmail.com
+- Server invite invalid or channels locked ? You can contact me via my instagram acc piyush_kanyal_02
 
 ## 5. How can we delete our entire data?
 
